@@ -12,3 +12,4 @@
 - usually never offtab when i'm online so i'm likely to answer. if i don't, try whispering since i'm probably busy doing something
 - i don't care about copying or inspo it's fucking pixel ponies
 - players with tt/td: execution
+- if you're gonna interact with me solely because you wanna ship our two little cosplays together don't even bother because i will detonate you (booom booooooomm explosion kapowww)
