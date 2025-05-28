@@ -9,6 +9,7 @@
 
 # pony town info
 - i have **local chat turned off**, so if you want to talk then please do so through **whispers**.
+  - i respond fairly quickly through whispers!!!
 - i like being given things! please **give me all your stuff**, i will hold onto it for as long as i can!
 - i dislike **random c+h** and will **move away** when it happens... i appreciate it if you **ask first**.
 - **not online much** since i am busy with other things.
