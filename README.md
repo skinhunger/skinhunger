@@ -5,7 +5,7 @@
 
 
 
-![](https://files.catbox.moe/w1u4gf.jpg)
+![](https://files.catbox.moe/q341ma.png)
 
 # pony town info
 - i have **local chat turned off**, so if you want to talk then please do so through **whispers**.
