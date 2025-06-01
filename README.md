@@ -1,10 +1,7 @@
-![](https://komarev.com/ghpvc/?username=skinhunger&color=yellow&label=views)
+whisper to interact because i have local chat off!!! otherwise i will not see any messages
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
+![](https://komarev.com/ghpvc/?username=skinhunger&color=red&label=views)
 
-![](https://files.catbox.moe/9e9d2i.gif)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=false&bar_color=8f8f8f)](https://github.com/kittinan/spotify-github-profile)
 
-## pony town info
-- i have local chat off, i won't see messages unless it's through whispers
-- ask for c+h otherwise i will move away (not a tt/td thing, i just don't wanna sit with randoms)
-- offtab most of the time
+![](https://files.catbox.moe/jeobsh.gif)
