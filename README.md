@@ -1,5 +1,3 @@
-![](https://files.catbox.moe/ygt0ce.gif)
+![](https://files.catbox.moe/dmrsvo.gif)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color_cover=true&bar_color=53b14f)](https://github.com/kittinan/spotify-github-profile)
-
-YOU. ME. GAS STATION. What are we getting for dinner? Sushi of course. Uh oh, there was a roofie inside of our gas station sushi, we black out and wake up in a sewer. We're surrounded by fish; horny fish. You know what that means. Fish orgy, the stench draws in a bear. What are we gonna do? We're gonna fight it. BEAR FIGHT. BEAR HANDED. BEAR naked? Oh yes, please. We befriend the bear after we beat it in a brawl. Then we ride into a chuck-e-cheese, dance dance revolution. REVOLUTION? OVERTHROW THE GOVERNMENT? Uh, I think so. Next thing you know, I'm reincarnated as Jesus Christ. Then I turn into a jet, fly into the sun, black out again, wake up, do a bump, white out which I didn't know you could do, then I smoked a joint. Greened-out, then I turned into the sun. Uh oh, looks like the meth is kicking in!
