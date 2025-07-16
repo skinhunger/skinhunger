@@ -2,4 +2,4 @@
 
 more info on rentry :P
 
-![](https://files.catbox.moe/5ux4y5.pnj)
+![](https://files.catbox.moe/x5ye82.webp)
