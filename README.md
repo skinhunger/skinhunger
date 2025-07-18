@@ -1,5 +1,3 @@
-**i have local chat disabled!!** please **whisper** to interact, otherwise i won't see messages.
+currently on vacation!
 
-more info on rentry :P
-
-![](https://files.catbox.moe/x5ye82.webp)
+will not be back online until the 10th of august. stay safe out there!
