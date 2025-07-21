@@ -1,3 +1,3 @@
-currently on vacation! in croatia for 3 weeks 🇭🇷🏖️
+ummm remaking. later
 
-will not be back online until the 10th of august. stay safe out there!
+erm what the scallop 😂😂😂🤣 rizz in ohio be like 🗿🗿🥶 me when fine shyt 🤫🤫🧏
