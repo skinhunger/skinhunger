@@ -1,4 +1,4 @@
-kawaiiです
+kawaii
 
 read the rentry for info
 
