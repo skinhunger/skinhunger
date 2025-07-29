@@ -1,9 +1,6 @@
-samuel, he/it
+![](https://files.catbox.moe/7qlgr0.gif)
+![](https://files.catbox.moe/0apodz.png)
 
-disordered neurodivergent 16 year old
+iwec, not talkative at all i'm shy as fuck
 
-i am not talkative at all and i will most likely ignore you, i play the game occasionaly for background stimulation
-
-my chat is disabled so if you REALLY want to say something to me then whisper
-
-my little pony special interest. if you even care. my favourite is applejack
+i haven't watched squid game YET. no spoilers. i'm a poser teehehehehe
