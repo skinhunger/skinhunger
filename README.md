@@ -4,5 +4,5 @@ pony town info
 - i am only here to aura farm
 
 <p align="center">
-    <img width="500" src="https://files.catbox.moe/clxmp2.gif"">
+    <img width=500" src="https://files.catbox.moe/clxmp2.gif"">
 </p>
