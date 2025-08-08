@@ -5,5 +5,5 @@ pony town info
 
 
 <p align="center">
-    <img width="400" src="https://files.catbox.moe/clxmp2.gif" alt="Material Bread logo">
+    <img width="350" src="https://files.catbox.moe/clxmp2.gif" alt="rory knight">
 </p>
