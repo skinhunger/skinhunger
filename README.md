@@ -4,3 +4,4 @@
 
 - i aura farm on pony town and do nothing else
 - chat is disabled, whisper to interact
+- not online often ! i play games and watch anime and study and go outside
