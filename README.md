@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/8k0giz.webp" alt="minominominori">
+    <img width="250" src="https://i.postimg.cc/ydxkHkk3/IMG-0182.png" alt="mado">
 </p>
 
 - i aura farm on pony town and do nothing else
