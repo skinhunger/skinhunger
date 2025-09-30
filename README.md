@@ -11,4 +11,4 @@
 -  whisper to interact always !! even if i'm not offtab i am still really inattentive and easily miss messages
 - no c+h unless it's with someone i know. otherwise i'll just move
 - don't copy or take inspo??? this is an unspoken rule it's a little sad i have to say it
-- i don't support tt/td, but i don't care that much in the first place. do what you wanna do
+- i don't support tt/td, but i don't care that much in the first place. do what you wanna do, who am i to tell you no lol
