@@ -5,5 +5,3 @@
 <p align="center">
     <img width="100" src="https://komarev.com/ghpvc/?username=whampow&color=red&style=flat-square" alt="Material Bread logo">
 </p>
-
-remake schedueled... soon... ,maybe tomorrow... october 4th... or sunday... october 5th...
