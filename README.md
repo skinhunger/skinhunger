@@ -5,3 +5,10 @@
 <p align="center">
     <img width="120" src="https://komarev.com/ghpvc/?username=whampow&color=000000&style=for-the-badge" alt="Material Bread logo">
 </p>
+
+## pony town info :p
+- safe server 1 @ docks 90% of the time
+- only busy/offtab whenever i specify it in my pony name, otherwise i'm actively playing
+  - i recommend whispering to get my attention regardless since i get distracted easily & often
+- i am 17 years old. i will not be making friends with children. anyone 14 and below i'll avoid interacting with. i prefer interacting with those within my own age range (16-19 ish)
+- not a tt/td believer. sorry i will be touching you on purpose now
