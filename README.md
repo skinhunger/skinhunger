@@ -7,8 +7,8 @@
 </p>
 
 ## pony town info :p
-- safe server 1 @ docks 90% of the time
-- only busy/offtab whenever i specify it in my pony name, otherwise i'm actively playing
-  - i recommend whispering to get my attention regardless since i get distracted easily & often
-- i am 17 years old. i will not be making friends with children. anyone 14 and below i'll avoid interacting with. i prefer interacting with those within my own age range (16-19 ish)
-- not a tt/td believer. sorry i will be touching you on purpose now
+- safe server 1 @ docks 90% of the time. if not i'm with my friend. shoutout to twin
+- offtab often
+- whisper to interact
+- umm not gonna engage in discourse it's stupid and makes me laugh because what do you mean the silly little ponies on my screen are arguing
+- not online much... i don't like playing i just like making ponies that's all i'm really here for
