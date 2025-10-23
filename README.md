@@ -9,6 +9,6 @@
 ## pony town info :p
 - safe server 1 @ docks 90% of the time. if not i'm with my friend. shoutout to twin
 - offtab often
-- whisper to interact
+- whisper to interact even if i'm actively playing because i'm inattentive as hell
 - umm not gonna engage in discourse it's stupid and makes me laugh because what do you mean the silly little ponies on my screen are arguing
 - not online much... i don't like playing i just like making ponies that's all i'm really here for
