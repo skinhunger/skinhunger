@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-[sign the ata](https://blackstar.atabook.org)
+<a href="https://blackstar.atabook.org">feed the ata</a>
 </p>
 
 <p align="center">
