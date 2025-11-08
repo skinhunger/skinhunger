@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/40h0wr.png" alt="broken casette tape">
+    <img width="250" src="https://files.catbox.moe/szhesv.webp" alt="dawg">
 </p>
 
 <p align="center">
