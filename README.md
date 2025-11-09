@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="250" src="https://files.catbox.moe/szhesv.webp" alt="dawg">
+    <img width="200" src="https://files.catbox.moe/4d1b5i.webp" alt="gold flower">
 </p>
 
 <p align="center">
@@ -8,6 +8,6 @@
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=e22400&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
