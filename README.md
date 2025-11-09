@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<a href="https://blackstar.atabook.org">atabook. sign it</a>
+<a href="https://blackstar.atabook.org">𝓐tabook</a>
 </p>
 
 <p align="center">
