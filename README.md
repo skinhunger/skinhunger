@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="200" src="https://files.catbox.moe/4d1b5i.webp" alt="gold flower">
+    <img width=400" src="https://files.catbox.moe/2ox0jv.jpeg" alt=":3">
 </p>
 
 <p align="center">
