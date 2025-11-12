@@ -1,13 +1,3 @@
-<p align="center">
-    <img width=300" src="https://files.catbox.moe/nxd133.jpeg" alt=":3">
-</p>
+taking a hiatus from ponytown & social media in general because i feel my mental health hitting rock bottom again. which i DON'T want to happen i actually wanna try to be happy and healthy believe it or not. also gotta focus on school more, can't be having violent intrusive thoughts about the people around me when i got a future to worry about
 
-<p align="center">
-<a href="https://blackstar.atabook.org">ATABOOK</a>
-</p>
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31juwpv3sapxzgmufghrara3klv4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d1e890&bar_color_cover=false">
-  </a>
-</p>
+will be back in 2 months ish. january 2026
