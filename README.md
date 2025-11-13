@@ -1,3 +1,7 @@
+<p align="center">
+    <img width="300" src="https://files.catbox.moe/j0m47p.gif" alt="lain">
+</p>
+
 > `PONY.TOWN INFO`
 - [ ] `not online much, i do other stuff. like touching grass!!!`
 - [ ] `feel free to interact! i only play whenever i'm bored and wanna talk to people`
