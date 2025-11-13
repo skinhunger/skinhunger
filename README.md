@@ -1,7 +1,6 @@
 <p align="center">
 <a href="https://blackstar.atabook.org">atabook. sign it or i eat you</a>
-</
-
+</p>
 
 <p align="center">
     <img width="300" src="https://files.catbox.moe/j0m47p.gif" alt="lain">
