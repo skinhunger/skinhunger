@@ -1,6 +1,3 @@
-<p align="center">
-<a href="https://blackstar.atabook.org">my atabook. sign it (threat)</a>
-</p>
 
 <p align="center">
     <img width="400" src="https://files.catbox.moe/vv59vi.gif" alt="pow pow POW!!!">
