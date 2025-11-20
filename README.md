@@ -7,4 +7,3 @@
 not on ponytown much i have a life  
 whisper if you wanna play roblox
 
-spam followers welcome. please give me attention
