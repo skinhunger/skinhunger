@@ -4,8 +4,12 @@
   </a>
 </p>
 
-not on ponytown much i have a life  
-whisper if you wanna play roblox
+## ponytown info
+- [ ] whisper to interact always
+- [ ] no c+h someone asks and i say yes
+- [ ] safe server 1, usually at docks
+- [ ] not online too often i have a life
+
 
 [my atabook. sign it i will be happy](https://goingpostal.atabook.org)
 
