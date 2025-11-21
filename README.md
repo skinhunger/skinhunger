@@ -6,7 +6,7 @@
 
 ## ponytown info
 - [ ] whisper to interact always
-- [ ] no c+h someone asks and i say yes
+- [ ] no c+h unless someone asks and i say yes
 - [ ] safe server 1, usually at docks
 - [ ] not online too often i have a life
 
