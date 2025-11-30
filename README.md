@@ -1,3 +1,4 @@
-<p align="center">
-    <img width="150" src="https://files.catbox.moe/q14xjb.gif" alt=" ">
-</p>
+hi don't copy my ponies thank u  
+no information do not refer to me ever
+
+i liek postal
