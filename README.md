@@ -5,3 +5,5 @@
 - [ ] i don't play much so feel free to come up and say hi whenever i am online
 - [ ] idc abt tt/td do whatever you waaanntttuhhh
 - [ ] as a kid my favourite from the main 6 was twilight sparkle
+
+pls do also read the rentry for more information about Me. as a Person.
