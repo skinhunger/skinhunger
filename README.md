@@ -2,6 +2,7 @@
 
 ## pony town info yay
 - [ ] whisper to interact ALWAYS!!!
+- [ ] @ docks safe server 1 always. if not i am offline or with friends
 - [ ] i don't play much so feel free to come up and say hi whenever i am online
 - [ ] idc abt tt/td do whatever you waaanntttuhhh
 - [ ] as a kid my favourite from the main 6 was twilight sparkle
